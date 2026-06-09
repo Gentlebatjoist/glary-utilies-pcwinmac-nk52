@@ -1,4 +1,4 @@
-# 
+# Nuevo Glary Utilities flujo de trabajo para Mac OS | Gratuito Glary Utilities flujo de trabajo para PC Windows. Con optimizador de servicios y integración de API — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
